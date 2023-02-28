@@ -1,2 +1,2 @@
 # Kacper
-rucham ci mame &lt;33
+fiririri &lt;33
